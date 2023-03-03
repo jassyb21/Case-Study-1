@@ -52,4 +52,4 @@ https://kpmg.com/xx/en/home/insights/2023/02/pulse-of-fintech-h2-2022-global-ins
 
 https://ott.ca/2021/05/11/ott-pay-named-one-of-canadas-best-mobile-payment-companies-in-2021/
 
-https://hbr.org/2014/11/7-marketing-technologies-every-company-must-use
+https://hbr.org/2014/11/7-marketing-technologies-every-company-must-use 
