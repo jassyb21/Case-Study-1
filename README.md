@@ -42,3 +42,14 @@ To launch large-scale marketing campaigns, the company must use software and tec
 
 ## Resources 
 
+https://ca.linkedin.com/company/ott-financial-group
+
+https://www.crunchbase.com/organization/ott-financial-group
+
+https://tracxn.com/d/companies/ott-financial-group/__5vLoOZfI5GSp5Es4ElpkdkXmyIP9DRI3axmxyIjwyic/competitors
+
+https://kpmg.com/xx/en/home/insights/2023/02/pulse-of-fintech-h2-2022-global-insight.html
+
+https://ott.ca/2021/05/11/ott-pay-named-one-of-canadas-best-mobile-payment-companies-in-2021/
+
+https://hbr.org/2014/11/7-marketing-technologies-every-company-must-use
