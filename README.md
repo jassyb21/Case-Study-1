@@ -8,7 +8,7 @@ The company was incorporated October 2006.
 
 The founder and CEO is Carl Cai. 
 
-The company's mission is providing value for its clinets by building a convenient, secure and professional financial services network using technology to connect markets in North America and China. 
+The company's mission is providing value for its clients by building a convenient, secure and professional financial services network using technology to connect markets in North America and China. 
 
 ## Business Activities 
 
